@@ -1,5 +1,4 @@
-![](https://64.media.tumblr.com/ad570a59ff5eec93c093cc17f7c0e466/b2fb816dc965086f-a7/s250x400/22d2483926b623ee0816f7e3c98f10cb54385278.pnj)
-
+![](https://64.media.tumblr.com/197bf74462482851e5d1aa7f80db72e7/002eeabb609d46f7-c5/s250x400/ea6a3cbd5c815dda944e59645969e69d4787fd4b.gifv)
 
 ✦ 💬 waves screams throws up, anyways pls look at my sp for my about!,
 **but is you are lazy on doing that, here!**
