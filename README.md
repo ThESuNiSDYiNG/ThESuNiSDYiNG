@@ -1,6 +1,4 @@
 
-  ![](https://64.media.tumblr.com/197bf74462482851e5d1aa7f80db72e7/002eeabb609d46f7-c5/s250x400/ea6a3cbd5c815dda944e59645969e69d4787fd4b.gifv)
-
 ✦ 💬 waves screams throws up, anyways pls look at my sp for my about!,
 **but is you are lazy on doing that, here!**
 
@@ -13,7 +11,15 @@
 * I am very hyper but also a very shy person, meaning I might or might not interact with you, please do not call me rude if I don't interact!, I have a very complicated ways of doing things, for my protection and sensitivity.
 
 * I mainly always stay by my friends, Beach/docks or somewhere at the corner of the map!
+### WIP
+
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+TO EX FRIENDS: fucking dni oh my god. just letting you guys know, ME asking KINDLY for (ex friend) to not use my flags is not harassment! 
+ALSO! just because your friends said that they aren't harassing us, doesn't mean they're actually telling the truth! me and my best friend has been getting harassed Non-Stop about this issue, and no I do not believe that someone is pretending to be you guys, it just you guys trying to be smart and cover up your tracks, which obviously isn't working. I have admitted my mistakes, you can honestly do so as well but you guys have your head too stuck in the dirt to understand what you guys did wrong. ”you don't understand our side” **we** try to understand, **we** did.**we** spent countless nights wondering if just maybe, **we** wasnt a loudmouth none of this would have happened, but it did, even when we kept our mouth shut, **we** went as far as trying to actually understand you guys decide and every time we try to, the story just magically changes into something else, "oh this" "oh that" like omfg. we even apologize for how **we**, and guess what? that got thrown right under the bus.
+
+this whole entire drama has literally gotten us back into our old habit and it's sickening to think it can get this far.
+
+---
 
 ![](https://64.media.tumblr.com/ad570a59ff5eec93c093cc17f7c0e466/b2fb816dc965086f-a7/s250x400/22d2483926b623ee0816f7e3c98f10cb54385278.pnj)
 ![](https://64.media.tumblr.com/4c43dbefd370d5aee856f3137f9f852e/b2fb816dc965086f-0b/s250x400/d5e152e7aa56f99463f567ce769b1cd25af630e1.pnj)
