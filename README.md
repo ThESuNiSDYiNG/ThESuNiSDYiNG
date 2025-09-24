@@ -20,7 +20,7 @@ TO EX FRIENDS: fucking dni oh my god. just letting you guys know, ME asking KIND
 ALSO! just because your friends said that they aren't harassing us, doesn't mean they're actually telling the truth!
 me and my best friend has been getting harassed Non-Stop about this issue, and no I do not believe that someone is pretending to be you guys, it just you guys trying to be smart and cover up your tracks, which obviously isn't working, and honestly it's just embarrassing at this point because we know it's you, we've been friends with you for a very long time and we know how you act. I have admitted my mistakes, you can honestly do so as well but you guys have your head too stuck in the dirt to understand what you guys did wrong. ”you don't understand our side” **we** try to understand, **we** did.**we** spent countless nights wondering if just maybe, **we** wasnt a loudmouth none of this would have happened, but it did, even when we kept our mouth shut, **we** went as far as trying to actually understand you guys decide and every time we try to, the story just magically changes into something else, "oh this" "oh that" like omfg. we even apologize for how **we**, and guess what? that got thrown right under the bus.
 
-this whole entire drama has literally gotten us back into our old habit and it's sickening to think it can get this far.
+this whole entire drama has literally gotten us back into our old habits and it's sickening to think it can get this far.
 
 ---
 
