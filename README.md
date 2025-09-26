@@ -1,3 +1,4 @@
+![](https://github.com/kittinan/spotify-github-profile][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31wjf2qdlaoc7c3t6q7dojmks44m&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ff00ff&bar_color_cover=true)
 
 ✦ 💬 waves screams throws up, anyways pls look at my sp for my about!,
 **but is you are lazy on doing that, here!**
