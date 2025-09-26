@@ -1,5 +1,4 @@
-![](https://github.com/kittinan/spotify-github-profile][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31wjf2qdlaoc7c3t6q7dojmks44m&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ff00ff&bar_color_cover=true)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wjf2qdlaoc7c3t6q7dojmks44m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 ✦ 💬 waves screams throws up, anyways pls look at my sp for my about!,
 **but is you are lazy on doing that, here!**
 
